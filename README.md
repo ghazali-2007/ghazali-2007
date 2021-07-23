@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ghazali-2007
+- Telegram - @ghazali_2007
+- Reddit - Ghazali_2007
