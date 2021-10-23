@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ghazali-2007
+- 👋 Hi, I’m Ghazali
 - Telegram - @ghazali_2007
 - Reddit - Ghazali_2007
